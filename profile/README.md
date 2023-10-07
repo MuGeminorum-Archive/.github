@@ -1,3 +1,1 @@
-## Hi there 👋
-
-This is an indie game dev studio crafting captivating games and exploring tech experiments, pushing creative boundaries to bring unique experiences to life.
+The Central Conservatory of Music (CCOM) is a magnet for musical talents from all over the world. During its over 70 years of development, it has proudly maintained a strong team of faculty and administrative staff, including a number of outstanding specialists and scholars in music education, composition, performance and research. Many aspiring young musicians have been attracted to further their professional training at CCOM. Dozens of thousands of talented music students, including hundreds of international students, have been successfully trained. Among them, many have become internationally renowned composers, musicologists, music educators, performing artists, as well as leaders and important members in specialized art and cultural institutions.
